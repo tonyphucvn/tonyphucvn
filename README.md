@@ -1,7 +1,7 @@
 # 💫About Me :
 
 Hi my name is Phúc
-Hiện nay đang học tập tại FPT Polytechnic
+
 
 ## 🌐Socials
 
